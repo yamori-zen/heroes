@@ -1,0 +1,1 @@
+Spider-Man es un superhéroe ficticio creado por los escritores y editores Stan Lee y Steve Ditko. Apareció por primera vez en el cómic de antología Amazing Fantasy # 15 en la Edad de Plata de los cómics.
